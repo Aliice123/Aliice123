@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Aliice123
 - 👀 I’m interested in To play 
 - 🌱 I’m currently learning To play
-- 💞️ I’m looking to collaborate on To play
+- 💞️ I’m looking to collaborate Jogar
 - 📫 How to reach me By email 
 
 <!---
